@@ -8,4 +8,4 @@ Welcome to my Github profile,I have 18 years old and I'm currently studying a pr
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/Nahupazoss/)(click me)  
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/Nagupazoss)(click me)  
 
-🩸Contact: rodrigopazos9@gmail.com or nahuelpazoss@gmail.com
+🩸 Contact: rodrigopazos9@gmail.com or nahuelpazoss@gmail.com 🩸
