@@ -2,7 +2,7 @@
 
 Welcome to my Github profile,I have 18 years old and I'm currently studying a programmer degree at the UTN faculty.
 
-![me](https://animesher.com/orig/0/81/814/8141/animesher.com_hands-mac-monochrome-814100.gif)
+![me](https://animesher.com/orig/0/81/814/8141/animesher.com_hands-mac-monochrome-814100.png)
 
 
 
