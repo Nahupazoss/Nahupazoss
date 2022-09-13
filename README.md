@@ -2,7 +2,8 @@
 
 Welcome to my Github profile,I have 18 years old and I'm currently studying a programmer degree at the UTN faculty.
 
-![20e92227c9b739044e377b3567cfdac0](https://user-images.githubusercontent.com/98673588/184474172-f59d7d03-900a-4c23-8f99-5daa29858cb5.gif)
+![20e92227c9b739044e377b3567cfdac0](https://animesher.com/entry/hands-mac-monochrome-814100/)
+
 
 ## 🩸You can find me in🩸
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/Nahupazoss/)(click the image)  
