@@ -2,8 +2,9 @@
 
 Welcome to my Github profile,I have 18 years old and I'm currently studying a programmer degree at the UTN faculty.
 
-![image](https://user-images.githubusercontent.com/98673588/189922553-c768395c-5612-4019-ad9f-7d3264ef58dd.png)
 
+
+![gamer-gif-movimiento-gifmaniacos es-62](https://user-images.githubusercontent.com/98673588/189923686-b98469a1-569b-4579-b3b7-94bf18fed197.gif)
 
 
 
