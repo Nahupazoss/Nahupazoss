@@ -12,5 +12,5 @@ Welcome to my Github profile,I have 18 years old and I'm currently studying a pr
 🩸 Contact: rodrigopazos9@gmail.com or nahuelpazoss@gmail.com 🩸
 
 
-🩸Linkedin: https://www.linkedin.com/in/nahuel-pazos-287442253/🩸
+🩸Linkedin: https://www.linkedin.com/in/nahupazos/🩸
 
