@@ -13,4 +13,4 @@ Welcome to my Github profile,I have 18 years old and I'm currently studying a pr
 
 
 🩸Linkedin: https://www.linkedin.com/in/nahuel-pazos-287442253/🩸
-![homer-simpson-homer-dance](https://user-images.githubusercontent.com/98673588/202729767-27403883-958d-45a9-8450-a78b00e053bd.gif)
+
