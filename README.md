@@ -16,4 +16,3 @@ nahuelpazoss@gmail.com
 https://www.linkedin.com/in/nahupazos/
 
 
-![a0d581666d26dd9c66bf8ed395cba948](https://user-images.githubusercontent.com/98673588/206370365-8880c4e3-1e89-48bb-8fe7-334ce9505fe2.gif)
