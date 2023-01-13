@@ -1,6 +1,6 @@
 ### Hi,i'm Nahuel!👋👨🏻‍💻
 
-Welcome to my Github profile,I have 18 years old and I'm currently studying a programmer degree at the UTN faculty.
+Welcome to my Github profile,I have 18 years old and I'm currently studying a programmer degree at the UTN university.
 
 ![descarga](https://user-images.githubusercontent.com/98673588/206369972-5a4680a9-6134-4ce5-b0a9-f388c3b7b11e.gif)
 
