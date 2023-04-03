@@ -13,7 +13,6 @@ rodrigopazos9@gmail.com
 nahuelpazoss@gmail.com
 
 # Linkedin
-https://www.linkedin.com/in/nahupazos/
 <a href="https://linkedin.com/in/nahupazos" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="nahupazos" height="30" width="40" /></a>
 
 
